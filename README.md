@@ -1,6 +1,6 @@
 <p align=center> hi there! my name's vincent or lincoln, or (preferably) any nickname above. i'm also open to other nicknames unrelated to my name, get as casual as you'd like!
-i'm a huge zelda nerd, but i also have a large love for making original character content and have a passion for other gaming franchises too. full interests/extra about me are a little further. dunno how github works so uh. check the strawpage leave a doodle or something <p align=center>
-<p align=center> https://zeldabf.straw.page/ <p align=center>
+i'm a huge zelda nerd, but i also have a large love for making original character content and have a passion for other gaming franchises too. full interests/extra about me are a little further. dunno how github works so uh. check the strawpage leave a doodle or sign the guestbook or something <p align=center>
+<p align=center> https://zeldabf.straw.page/ + https://zeldabf.123guestbook.com <p align=center>
 
 <p><p align=center><img src="https://i.pinimg.com/originals/43/ed/7f/43ed7f9daa8cd72166b6cd5eb2a27fd4.gif" class="fr-fic fr-dib" width="257.993" height="268.734"></p><p align=center>
 
