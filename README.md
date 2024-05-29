@@ -1,8 +1,7 @@
 <p align=center> hi there! my name's vincent or lincoln, or (preferably) any nickname above. i'm also open to other nicknames unrelated to my name, get as casual as you'd like!
-i'm a huge zelda nerd, but i also have a large love for making original character content and have a passion for other gaming franchises too. full interests/extra about me are a little further. dunno how github works so uh. check the spacehey leave a doodle or sign the guestbook or something. fuck if he knows. <p align=center>
-<p align=center> https://spacehey.com/fiercedeity + https://zeldabf.123guestbook.com <p align=center>
+i'm a huge zelda nerd, but i also have a large love for making original character content and have a passion for other gaming franchises too. full interests/extra about me are a little further. dunno how github works so uh. socials on the carrd art on the tumblr. fuck if he knows. <p align=center>
+<p align=center> https://tatl.carrd.co + https://zeldabf.tumblr.com <p align=center>
 
-<p><p align=center><img src="https://24.media.tumblr.com/tumblr_mayvge5Kn71rx9uplo1_250.gif" class="fr-fic fr-dib" width="257.993" height="268.734"></p><p align=center>
 
 <p align=center> INTERESTS:
 the legend of zelda: ocarina of time, majoras mask, skyward sword, twilight princess, minish cap, a link between worlds, hyrule warriors, breath of the wild, age of calamity, tears of the kingdom, the oracle duology, link's awakening - i love all the games, these are just the ones i've played/remember! katamari damacy, kid icarus uprising,
