@@ -1,6 +1,6 @@
 <p align=center> hi there! my name's vincent or lincoln, or (preferably) any nickname above. i'm also open to other nicknames unrelated to my name, get as casual as you'd like!
 i'm a huge zelda nerd, but i also have a large love for making original character content and have a passion for other gaming franchises too. full interests/extra about me are a little further. dunno how github works so uh. socials on the carrd art on the tumblr. fuck if he knows. <p align=center>
-<p align=center> https://tatl.carrd.co + https://zeldabf.tumblr.com <p align=center>
+<p align=center> https://fiercedeity.straw.page <p align=center>
 
 
 <p align=center> INTERESTS:
