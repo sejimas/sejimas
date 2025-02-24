@@ -1,6 +1,6 @@
 <p align=center> hi there! my name's vinny or ki. i'm also open to other nicknames unrelated to my name, get as casual as you'd like!
 i'm a huge zelda nerd, but i also have a large love for making original character content and have a passion for other gaming franchises too. full interests/extra about me are a little further. <p align=center>
-<p align=center> https://fiercedeity.straw.page <p align=center>
+<p align=center> https://moonchildren.straw.page <p align=center>
 
 
 <p align=center> INTERESTS:
