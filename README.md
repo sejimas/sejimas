@@ -2,8 +2,11 @@
 
 
 <p align=center> INTERESTS:
-the legend of zelda, AI: the somnium files + nirvana initiative, skyrim TES:V, katamari damacy, kid icarus uprising, mysims, stardew valley, fran bow, miitopia, subspace emissary/world of light, BLAME!/NOiSE, darker than black, jojo's bizzare adventure, marine life, astronomy, masks, artwork, character design. as for music, pretty much anything goes. like anything. <p align=center>
+the legend of zelda [most/all, especially majora's mask.] ai: the somnium files [+ nirvana initiative] kid icarus, katamari damacy, super paper mario, mysims, miitopia, super smash brothers [brawl/ultimate] neon white, pokemon [x/moon/shield] cookie run kingdom, stardew valley, fran bow
 
+<p align=center> ANIMES/MANGA: mononoke 2007/2024, dororo 2019, darker than black s1, jojo's bizarre adventure, hozuki's coolheadedness, BLAME!, soul eater, inuyasha
+
+<p align=center> yes this is all ass idgafffff.... i like hearing about anything tho so feel free to infodump/rant about whatever
   
  <p align=center> ABOUT:
 evil, stupid, never shuts the fuck up!!! <p align=center>
